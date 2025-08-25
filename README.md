@@ -23,6 +23,7 @@ Ele está repleto de speedruns sobre:
 
 - Ace Combat 7
 [Playlist](https://www.youtube.com/watch?v=sqdYvhSCLno&list=PLhmKs5S8F_Rq1oV3V-RnmWHvvgFsFNRl9&pp=gAQB0gcJCXwEOCosWNin)
+
 ![](https://i9.ytimg.com/vi_webp/sqdYvhSCLno/mqdefault.webp?v=5f9fe4b5&sqp=CMiuscUG&rs=AOn4CLAllJJnr7pi9RuPiocA7NAbyzCIrg)
 
 
