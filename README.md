@@ -10,6 +10,7 @@ Meu nome é Alexsandro Zelmer Pontes
 
 Ele está repleto de speedruns sobre:
 - Dyson Sphere Program
+[https://i9.ytimg.com/vi_webp/qwKJFxO_9zg/mqdefault.webp?v=637b4b4e&sqp=CJysscUG&rs=AOn4CLAEewO5abqwjIz8ABo9EU_WLgyTng](https://www.youtube.com/watch?v=qwKJFxO_9zg&list=PLhmKs5S8F_Rowg_h5lCJAyqCtmhv95jKw&pp=gAQB)
 ![](https://i9.ytimg.com/vi_webp/qwKJFxO_9zg/mqdefault.webp?v=637b4b4e&sqp=CJysscUG&rs=AOn4CLAEewO5abqwjIz8ABo9EU_WLgyTng)
 - Command and Conquer 3, Tiberium Wars
 ![](https://i9.ytimg.com/vi_webp/5ng5MMB_KIE/mqdefault.webp?v=56c5dc5b&sqp=CJysscUG&rs=AOn4CLAbZx3MCpn9lDFjPQNxEmz05zL7zw)
