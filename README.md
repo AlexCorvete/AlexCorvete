@@ -6,7 +6,7 @@ Meu nome é Alexsandro Zelmer Pontes
 - Estou estudando várias linguagens de programação
 - Utilizo esse espaço para organizar meus cursos e projetos estudados e desenvolvidos
 
-### Confira meu canal no Youtube
+### Confira meu canal no Youtube 🎮
 
 Ele está repleto de speedruns sobre:
 - Dyson Sphere Program
