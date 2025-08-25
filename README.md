@@ -16,10 +16,13 @@ Ele está repleto de speedruns sobre:
 
 
 - Command and Conquer 3, Tiberium Wars
+[Playlist](https://www.youtube.com/watch?v=CcIkGsKQKCE&list=PLhmKs5S8F_RrM9PcYpU6KrXR8aL0zn5XW&pp=gAQB)
+
 ![](https://i9.ytimg.com/vi_webp/5ng5MMB_KIE/mqdefault.webp?v=56c5dc5b&sqp=CJysscUG&rs=AOn4CLAbZx3MCpn9lDFjPQNxEmz05zL7zw)
 
 
 - Ace Combat 7
+[Playlist](https://www.youtube.com/watch?v=sqdYvhSCLno&list=PLhmKs5S8F_Rq1oV3V-RnmWHvvgFsFNRl9&pp=gAQB0gcJCXwEOCosWNin)
 ![](https://i9.ytimg.com/vi_webp/sqdYvhSCLno/mqdefault.webp?v=5f9fe4b5&sqp=CMiuscUG&rs=AOn4CLAllJJnr7pi9RuPiocA7NAbyzCIrg)
 
 
