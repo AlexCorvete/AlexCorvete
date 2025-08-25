@@ -13,7 +13,7 @@ Ele está repleto de speedruns sobre:
 - Command and Conquer 3, Tiberium Wars
 - Ace Combat 7
 
-[Youtube](https://www.youtube.com/@alexsanpontes)
+Acesse meu canal --> [Youtube](https://www.youtube.com/@alexsanpontes)
 
 
 ![](https://media1.tenor.com/m/C9qukZqPPS4AAAAC/coding-typing.gif)
