@@ -3,7 +3,7 @@
 Meu nome é Alexsandro Zelmer Pontes
 
 - Estou fazendo os cursos da Alura
-- Estou estudando várias linguagens 
+- Estou estudando várias linguagens de programação
 - Utilizo esse espaço para organizar meus cursos e projetos estudados e desenvolvidos
 
 ### Confira meu canal no Youtube
